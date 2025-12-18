@@ -1,0 +1,1 @@
+# Tarixler-aras-g-n-hesablama-
